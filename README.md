@@ -1,0 +1,1 @@
+# atividade-de-pensamento-computacional2022
